@@ -1,0 +1,2 @@
+# Gisun
+hanya saya
